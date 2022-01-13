@@ -1,0 +1,2 @@
+# placki-
+fajnie  że jesteś
